@@ -1,2 +1,2 @@
-# Diff-rent-exercice-de-cours
+# Different-exercice-de-cours
 Différent exercice de cours
